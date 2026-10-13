@@ -1,1 +1,0 @@
-# Generative-AI-Engineer-Final-Project-of-Short-Course-Programs-powered-by-Hacktiv8-
